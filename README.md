@@ -1,1 +1,2 @@
 # pizza
+pizza is made by mixing flour, water and yeast together to form a dough. this dough is then laid out and made into a faily thick circula sheet. this is furthers lathered with tomato sauce and then cheese and vegetables are put on it. it then goes into the oven when it is backed for about 10-15 minutes and finally it is cut into pies and served with seasonings.
